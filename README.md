@@ -10,7 +10,7 @@ Viņas draudzene Fera  - basendžu meitene. Kura ciest nevar vientulību, bezdar
 Viņai ļoti patīk skriet, un diemžēl viņa tic, ka var aizbēgt no jebkādām briesmām. Kā jau sunim no Āfrikas, basendži nepatīk vējš, aukstums, mitrs laiks un peldēšanās. Labāk pavadīt to laiku gultiņa, zem sedziņas 😁
 Bet abas kopā viņi ir forša komanda jebkadai darīšanai, pastaigai, gan paēst no vienas bļodas, gan izrakt bedre.
 Tagad viņiem pievienojas vēl viens draudziņš - Otto basendžu puika.
-Labprāt pieņēma viņu sava draudzīga pulka.
+Labprāt pieņēma viņu sava draudzīga pulkā.
 
 
 
